@@ -1,15 +1,13 @@
 # Lazaro Pinheiro Domiciano
 _36y, married to Alline, father of José Ricardo, 10+y of experience in high management positions_  
 
-<br><br>
+<br>
 
 ## **_Making my way toward the AI_**  
 
-<br>
-
 **_AI Resident at Hub de IA Senai Londrina_**  
 
-<br><br>
+<br>
 
 **Background:** chemical engineer (Poli/2007), master of engineering (Chimie ParisTech/2007), LSS Black Belt (M.I.Domenech/2012), MBA in leadership (FranklinCovey/2018), Innovation Program (ISAE/2019), Advanced Executive Program in Cooperativism (Unicuritiba/2019)  
 
